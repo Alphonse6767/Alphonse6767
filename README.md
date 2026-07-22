@@ -5,6 +5,8 @@ Profil commercial de terrain formé à la prospection B2B et à la gestion de po
 
 Titulaire d'une Licence orientée entreprise (ESC-Ouagadougou), mémoire consacré aux stratégies commerciales de développement de portefeuille clients.
 
+📍 Ouagadougou, Burkina Faso
+
 ### 💼 Compétences commerciales
 **Cycle de vente**
 - Prospection B2B/B2C
@@ -63,4 +65,5 @@ _2026_
 - **Baccalauréat** — Lycée Municipal de Jacqueville, Côte d'Ivoire
 
 ### 📬 Me contacter
-_(ajoutez ici vos liens : LinkedIn, e-mail, téléphone professionnel...)_
+- 📧 Email : alphonses7676@gmail.com
+- 📞 Téléphone : +226 67 82 33 44 / 04 00 00 55
